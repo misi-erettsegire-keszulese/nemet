@@ -12,6 +12,8 @@
   1. Martin Luther
   1. Gotthold Ephraim Lessing
 
+### Martin Luther
+
 ### Gotthold Ephraim Lessing
 
 - möchte mit Fabeln erziehen
